@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @dphoanghiep1998
 - 👀 I’m interested in ...GAMEEEEEEEEEEEEEEEEE
-- 🌱 I’m currently learning ...JS backend and fe ofcourses :D
-- 💞️ I’m very lazyyyyyy......
+- 🌱 I’m currently learning android ~~~
 - 📫 But try hard now :xD
 - Wanna become a T4lent prozip plus xsmax super bigboooommmmmmmmmmmmm
 
